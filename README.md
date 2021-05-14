@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @LasseBerner
+- 👀 I’m a recruiter in Oslo - Tech / Digital / IT 
+- 📫 Looking for a new opportunity, please contact me at: lasse.berner@glasspaper.no
